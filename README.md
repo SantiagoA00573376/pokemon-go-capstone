@@ -3,6 +3,7 @@
 Jorge Lopez Martinez - A01385731
 Santiago Torres Torres Landa - A00573376
 Emilio Alvarado Carson - A01751864
+Jacqueline Alanis Rodriguez - A01286739
 
 FECHA: 06 de Noviembre de 2026
 
